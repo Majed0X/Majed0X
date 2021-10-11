@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Majed0X
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning html
+- 📫 How to reach me twtittr : majed43X
